@@ -1,0 +1,1 @@
+Mi nombre es Karen Dayana Bravo Vera estudiante de la Universidad Nacional de Colombia, matriculada en la materia programación orientada a objetos del profesor Walter Hugo Arboleda Mazo, donde presento la actividad # 1 propuesta por el profesor. 
